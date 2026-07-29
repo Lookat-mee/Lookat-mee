@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: If im not learning new concepts, i'm on the field playing football. Chelsea fan to the core
 
 - Learning is continuous 
+
+#####Socials
+[https://x.com/pee__kayy]
