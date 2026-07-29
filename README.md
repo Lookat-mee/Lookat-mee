@@ -13,3 +13,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: paulenweliku@gmail.com
 - ⚡ Fun fact: If im not learning new concepts, i'm on the field playing football. Chelsea fan to the core
 
+- Learning never ends, Learning never stops:We keep moving
+
