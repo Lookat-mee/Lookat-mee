@@ -15,5 +15,5 @@ Here are some ideas to get you started:
 
 - Learning is continuous 
 
-#####Socials
+##### Socials
 [https://x.com/pee__kayy]
